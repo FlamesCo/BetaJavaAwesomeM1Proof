@@ -1,2 +1,2 @@
 # BetaJavaAwesomeM1Proof
-Public Cura
+Public Curated DISCORD./FT/CODEREPO
